@@ -18,3 +18,7 @@
        ૮ . ﻌ . ა 　　c+h 　　◞ 　　welc 　　♪ 　　satanist </b>
 </table>
 
+<details align="center">
+<summary>  Tysm  </summary>
+          <p align="center"> <a href="https://github.com/PT-FANtastic-Hall">pt-fantastics</a> Jaden Yuki
+</details>
