@@ -20,5 +20,5 @@
 
 <details align="center">
 <summary>  Tysm  </summary>
-          <p align="center"> <a href="https://github.com/PT-FANtastic-Hall">pt-fantastics</a> Jaden Yuki
+          <p align="center"> <a href="https://github.com/PT-FANtastic-Hall">pt-fantastics</a> <a href="https://github.com/Ponytowns-rewards">ponytowns-rewards</a> Jaden Yuki!
 </details>
