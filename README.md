@@ -7,3 +7,7 @@
 read my [fluffle](https://fluffle.cc/yanderism) before u interact
 sign my [ata](https://supremeking.atabook.org) now
 
+<details align="center">
+<summary>  Tysm  </summary>
+          <p align="center"> <a href="https://github.com/PT-FANtastic-Hall">pt-fantastics</a> <a href="https://github.com/Ponytowns-rewards">ponytowns-rewards</a> Jaden Yuki!
+</details>
