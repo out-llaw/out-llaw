@@ -5,7 +5,6 @@
 <img src="https://file.garden/aOvxYPBe6gwrFoVB/HTLhpk_XkAAoQYF.jpg">
 
 read my [fluffle](https://fluffle.cc/yanderism) before u interact
-sign my [ata](https://supremeking.atabook.org) now
 
 <details align="center">
 <summary>  Tysm  </summary>
@@ -13,4 +12,3 @@ sign my [ata](https://supremeking.atabook.org) now
 </details>
 
 
-I Have a very inconsistent style/way of tinting/coloring and i have been this way since before, joke about it idc but know that ill get annoyed if you joke/complain about it too many times yeah? ^_^
