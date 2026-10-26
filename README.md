@@ -8,7 +8,7 @@ read my [fluffle](https://fluffle.cc/yanderism) before u interact
 
 <details align="center">
 <summary>  Tysm  </summary>
-          <p align="center"> <a href="https://github.com/PT-FANtastic-Hall">pt-fantastics</a> <a href="https://github.com/Ponytowns-rewards">ponytowns-rewards</a> Jaden Yuki!
+          <p align="center"> <a href="https://github.com/PT-FANtastic-Hall">pt-fantastics</a> <a href="https://github.com/Ponytowns-rewards">ponytowns-rewards</a> Jaden Yuki! <a href="https://github.com/THE-TEMPIST">Tempests</a> Jaden Yuki.
 </details>
 
 
